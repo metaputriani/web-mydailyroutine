@@ -1,2 +1,2 @@
 # web-mydailyroutine
-Web Daily Routine Meta Putriani Selam Work From Home.
+Web Daily Routine Meta Putriani Selama Work From Home.
